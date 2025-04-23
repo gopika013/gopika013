@@ -1,0 +1,2 @@
+I am Gopika, a passionate and motivated final-year B.E. Computer Science and Engineering student, actively seeking opportunities to begin my career in the tech industry. With a strong foundation in programming, data structures, and web development, I am eager to apply my technical skills to real-world challenges. I enjoy problem-solving, learning new technologies, and collaborating in team environments. Currently looking for entry-level roles in software development, web development, or related fields where I can contribute, grow, and make a meaningful impact.
+
